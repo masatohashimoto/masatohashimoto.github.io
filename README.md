@@ -1,0 +1,1 @@
+# masatohashimoto.github.io
